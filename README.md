@@ -8,7 +8,7 @@
 - 📫 How to reach me:  
   - 📧 Email: rohanmate157@gmail.com 
   - 💼 [LinkedIn](https://www.linkedin.com/in/rohan-mate-390733225)  
-  - 🖥️ [GitHub](https://github.com/rohan-mate-28)
+  - 🖥️ [GitHub](https://github.com/rohan-mate-20)
 - ⚡ Fun fact: I love building creative solutions and exploring new tech trends!
  
 
